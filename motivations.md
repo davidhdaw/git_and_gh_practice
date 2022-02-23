@@ -1,0 +1,1 @@
+I've always had some talent in coding/friends in the space but tried to really push forward with my writing as a way of making money and decided I could maybe have my writing be something I did separately from making money because it's actually terrible for that.
